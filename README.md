@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @r0se2609
+- 👀 I’m interested in cryptocurrencey
+- 🌱 I’m currently learning blockchains
